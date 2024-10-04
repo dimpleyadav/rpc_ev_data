@@ -120,4 +120,4 @@ Improving Charging Infrastructure
 
 Focus on After-Sales Services
 
-Marketing Campaigns to increase awareness and build the hype
+Pricing
